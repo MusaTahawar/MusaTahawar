@@ -1,8 +1,7 @@
 # Musa Tahawar
 
 📧 Email: musatahawar25@gmail.com
-[![WhatsApp](https://www.freepnglogos.com/uploads/whatsapp-logo-light-green-png-0.png)](https://wa.me/+923477372651)
-
+📞 Whatsapp: [+92 347 7372 651](https://wa.me/+923477372651)
 🌐 [Behance](https://www.behance.net/musagame1)
 
 ## About Me
