@@ -1,8 +1,16 @@
 # Musa Tahawar
 
-📧 Email: musatahawar25@gmail.com
-📞 Whatsapp: [+92 347 7372 651](https://wa.me/+923477372651)
-🌐 [Behance](https://www.behance.net/musagame1)
+📷 [Instagram](https://www.instagram.com/musatahawar0/)
+
+👜 [Linkedin](https://www.linkedin.com/in/musa-tahawar-57a756245/?originalSubdomain=pk)
+
+🌐 [Behance](https://www.behance.net/musagamer1)
+
+⚽ [Dribbble](https://dribbble.com/musatahawar)
+
+👍 [Website](http://musatahawar.epizy.com)
+
+🎥 [Youtube](https://www.youtube.com/@mydudeitachi)
 
 ## About Me
 
@@ -21,6 +29,8 @@ I'm a multi-disciplinary professional with expertise in various creative and tec
 ## Contact
 
 📧 Email: musatahawar25@gmail.com
-🌐 [Behance](https://www.behance.net/musagame1)
+
+📞 Whatsapp: [+92 347 7372 651](https://wa.me/+923477372651)
+
 
 Feel free to reach out to me via email or explore my portfolio on Behance to see some of my creative work.
