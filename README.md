@@ -26,6 +26,8 @@ I'm a multi-disciplinary professional with expertise in various creative and tec
 
 - **UI Designer:** My skills extend to user interface design, ensuring that digital products are both aesthetically pleasing and easy to use.
 
+- **Video Editor:** I can Also edit and color grade videos with the help of various softwares like After Effects.
+
 ## Contact
 
 📧 Email: musatahawar25@gmail.com
